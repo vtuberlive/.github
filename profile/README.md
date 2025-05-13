@@ -8,7 +8,7 @@
 ---
 #### 目前已收录Vtuber：
 - 勺Shaun（BiliBili） [个人主页→](https://space.bilibili.com/666726801)
-##### 注：如果你是Vtuber本人或者管理：如果不想被收录，请联系邮箱：vtb@starmoon.top，我们会立即删除全部有关内容
+##### 注：如果你是Vtuber本人或者管理：如果不想被收录，请联系邮箱：official@vtb.email，我们会立即删除全部有关内容
 ---
 #### 本组织成员：
 - 暮稚ChloeLilyMu -> Admin
